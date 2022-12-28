@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/kamil3397?tab=repositories](https://github.com/kamil3397?tab=repositories)
 
-- 💬 Ask me about **anything! :)**
+- 💬 Checkout my pinned **FAQ** below! :point_down: 
 
 - 📫 How to reach me **kamil.kaminski3397@gmail.com**
 
